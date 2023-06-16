@@ -1,0 +1,6 @@
+Emiliano Rojas
+7°A Aviónica
+SOY DE RIVER
+Y DEL CHELSEA
+LOS DEL CITY SE LA COMEN
+
